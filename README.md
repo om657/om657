@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @om657
+- 👋 Hi, I’m NINJA  (@om657)
 - 👀 I’m interested in ...knowledge
 - 🌱 I’m currently learning ...coding
-- 💞️ I’m looking to collaborate on ....
+- 🙂 I'm Developer of NinjaKingdom
 - 📫 How to reach me ...on telegram @Om07H
 
 <!---
